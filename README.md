@@ -7,3 +7,20 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit. Sed aliquam viverra lec
 Nam et pretium tortor. Pellentesque at purus a purus dapibus malesuada. Integer mattis suscipit urna, ut ultrices mauris bibendum eu. Orci varius natoque penatibus et magnis dis parturient montes, nascetur ridiculus mus. Quisque elementum mauris in sollicitudin congue. Curabitur finibus sem dignissim imperdiet elementum. Duis vehicula diam eget ligula finibus, sed malesuada odio sodales. Donec arcu massa, dictum sit amet pretium nec, volutpat id lacus. In placerat nibh eu enim imperdiet, a rutrum libero vulputate. Nam ullamcorper mi sit amet sem ornare scelerisque. Maecenas massa elit, dictum vitae porta eu, rutrum posuere metus. Curabitur a justo cursus, sodales ligula sit amet, aliquet nunc. Etiam placerat luctus quam. Sed suscipit felis lacus, a pharetra augue facilisis et. Aenean iaculis eu eros ut pharetra. Morbi pharetra elit vel arcu feugiat accumsan.
 
 Pellentesque sit amet lorem ac nulla pellentesque lobortis. Praesent dapibus quis erat quis faucibus. Vivamus a iaculis magna. Suspendisse ultrices leo vitae mi porttitor, sit amet hendrerit enim consequat. Fusce vitae blandit elit, vestibulum feugiat ex. Lorem ipsum dolor sit amet, consectetur adipiscing elit. Fusce bibendum volutpat condimentum. Sed a condimentum elit. Vestibulum porttitor lorem id quam malesuada, eu consectetur lacus convallis.
+
+************************************************************************************************************************************************************************************************************************************************************************
+********************************************************************************************************************
+**********************************************************************************************
+THE WALKING DEAD SPIN OFF
+
+
+
+The Ones Who Live (RICK E MICHONNE)
+Dal 30 Dicembre 2024 (NOW)
+1 PUNTATA VISTA
+#########################################
+Daryl Dixon (DARYL)
+2025
+#####################################
+Dead City (NEGAN)
+2025
